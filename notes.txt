@@ -1,0 +1,5 @@
+icons8 for images
+
+
+
+navigator is the bridge between two pages, it knows which is before and after
