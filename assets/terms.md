@@ -1,0 +1,25 @@
+TERMS & CONDITIONS
+
+Thank you for using our service in Classic Daily . This mobile app is owned by Sri Gauvyum A2 AgroBio Private Limited. By accessing, shopping on this app, you indicate your unconditional acceptance of these terms & conditions. We reserve this right, in our sole discretion, to update or revise these terms & conditions. Continued use of the app following the posting of any changes to the ‘terms & conditions’, constitutes your acceptance of those changes. At Classic Daily, we try our best to create a space where you can explore and shop for all your favorite things in a safe and secure environment. All products and information displayed on Classic Daily constitutes an "invitation to offer". Classic Daily reserves the right to accept or reject your offer. Your order for purchase, constitutes your "offer" which shall be subject to the terms and conditions as listed below.
+
+1. Eligibility to use our app
+
+Use of the app is available only to persons who can legally enter into contracts under applicable laws. Persons who are "incompetent to contract", within the meaning of the Indian Contract Act, 1872 including un-discharged insolvents etc. are not eligible to use the app Classic Daily. Classic Daily reserves the right to terminate your access to the app if it discovers that you are under the age of 18 years or suffers from any other disability, as recognized under Indian Contract Act, 1872.
+
+2. Membership
+
+As a member, you agree to provide true, accurate, current, and complete information about yourself as prompted by the app’s registration form. Registration where prohibited under any law shall be void. Classic Daily reserves the right to revoke or terminate your registration for any reason at any time, without notice.
+
+3. Electronic Communications
+
+When you use the app or send emails or other data, information or communicate to us, you agree and understand that you are communicating with us electronically and give your consent to receive communications electronically from us periodically, when required.
+
+4. Reviews, Feedback, Submissions
+
+All reviews, comments, feedback, postcards, suggestions, ideas, and other submissions disclosed, submitted or offered to Classic Daily directly or otherwise disclosed, submitted or offered in connection with your use of this app (collectively referred to "comments") will remain as property of Classic Daily. Such disclosure, submission or offer of any comments shall constitute an assignment to Classic Daily of all worldwide rights, titles and interests in all copyrights and other intellectual properties in the comments, thus, it exclusively owns all such rights, titles and interests and shall not be limited in any way in its use, commercial or otherwise. Classic Daily will be entitled to use, reproduce, disclose, modify, adapt, create derivative works from, publish, display and distribute any comments you submit for any purpose whatsoever, without restriction and without compensating you in any way. Classic Daily is and shall be under no obligation (1) to maintain any comments in confidence; or (2) to pay you any compensation for any Comments; or (3) to respond to any comments. You agree that any comments submitted by you to the app will not violate this policy or any right of any third party, including copyright, trademark, privacy or other personal or proprietary right(s), and will not cause injury to any person or entity. You further agree that no comments submitted by you to the app will be libelous or otherwise unlawful, threatening, abusive or obscene material, or contain software viruses, political campaigning, commercial solicitation, chain letters, mass mailings or any form of "spam".
+
+Classic Daily does not regularly review posted comments, but does reserve the right (but not the obligation) to monitor and edit or remove any comment submitted to the app. You grant Classic Daily the right to use the name that you submit in connection with any of the posted comments. You agree not to use a false email address, impersonate any person or entity, or otherwise mislead as to the origin of any Comments you submit. You are and shall remain solely responsible for the content of any comments you make and you agree to indemnify Classic Daily and its affiliates for all claims resulting from any Comments you submit, we take no responsibility and assume no liability for any comments submitted by you or any third party.
+
+5. Accuracy of Content/ Information of Products on the app.
+
+While Classic Daily strives to provide accurate product and pricing information, typographical errors may occur. In the event that a product is listed at an incorrect price or with incorrect information due to an error in pricing or product information, Classic Daily shall have the right, on our sole discretion, to modify the price of the products, or information of the products or to refuse or cancel any orders placed for that product, unless the product has already been dispatched. 
